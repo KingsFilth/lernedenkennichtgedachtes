@@ -24,4 +24,4 @@ The truth is that I miss you all. I am homesick for a time that doesn't exist an
 <br>
 <br>
 
-And all I can think of while typing this is that I'm melodramatic, that my feelings are wrong, to be pushed aside, I'm ashamed for these words. 
+And all I can think of while typing this is that I'm melodramatic, that my feelings are wrong, to be pushed aside, I'm ashamed for these words. Differentiating between a heartfelt message and incomprehensible dribble full of annoying self-loathing is a task as monumental as overcoming my inability to communicate how I feel. 
